@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vinaychinthakindi
+- 👋 Hi, I’m @vinayChinthakindi
 - 👀 I’m interested in...learning
 - 🌱 I’m currently learning...lessons
 - 💞️ I’m looking to collaborate on...
