@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VinayCh-tataunistore-UpperFunnel
+- 👋 Hi, I’m @Vinaychinthakindi
 - 👀 I’m interested in...learning
 - 🌱 I’m currently learning...lessons
 - 💞️ I’m looking to collaborate on...
